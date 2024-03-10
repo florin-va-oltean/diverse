@@ -1,0 +1,2 @@
+# diverse
+diagrame ptr mobila :) 
